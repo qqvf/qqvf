@@ -20,7 +20,7 @@ $\textcolor{lightpurple}{she} ,, \textcolor{lightblue}{they}$
 
 <div align="center">
 
-bpdpolar . yuuta&junpei enthusiast
+cptsd+bipolar . yuuta&junpei enthusiast
 
 </div>
 
